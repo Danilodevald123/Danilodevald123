@@ -11,3 +11,8 @@ Como dato extra tengo hechas capacitaciones dentro de Soy Henry de habilidades b
 Datos extra personales.
 Jugué toda mi vida al rugby, soy apasionado del entrenamiento y los deportes en equipo, para distender suelo hacer ejercicio o leer sobre Estoicismo, una filosofía que me viene acompañando ya hace unos años.
 Emprendí el camino de la programación porque me encanta afrontar nuevos desafíos y formarme constantemente.
+
+
+Linkedin : https://www.linkedin.com/in/danilo-devald-a6898a22b/
+
+gmail: danilo.devald18@gmail.com
